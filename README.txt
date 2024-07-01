@@ -1,3 +1,3 @@
-comming ......  soon  please wait me  this is for the tigray tnsai charity website to develep 
+comming ......  soon  please wait the tigray tnsai charity website to develep 
 
 
